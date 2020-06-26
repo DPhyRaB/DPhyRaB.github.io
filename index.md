@@ -5,3 +5,4 @@ Phillip J. „Phil“ Coulson ist eine fiktive Figur von Marvel, welche ursprün
 * ausgebildet in zahlreichen Kampfkünsten
 * sanftmütig und sentimental
 * Experte in der Analyse taktischer Situationen
+> Tahiti ist ein magischer Ort
