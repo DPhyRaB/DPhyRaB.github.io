@@ -1,1 +1,2 @@
 # Phillip J. „Phil“ Coulson
+Phillip J. „Phil“ Coulson ist eine fiktive Figur von Marvel, welche ursprünglich für das Marvel Cinematic Universe erschaffen wurde und später aufgrund ihrer Popularität in die Mainstream-Comics von Marvel übernommen wurde. Bei der im MCU von Clark Gregg dargestellten Figur handelt es sich um einen hochrangigen Agenten der fiktiven Geheimorganisation S.H.I.E.L.D.
